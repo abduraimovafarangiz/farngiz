@@ -1,1 +1,1 @@
-# farngiz
+# farangiz
